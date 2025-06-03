@@ -1,5 +1,3 @@
-# helpPol
-Materials I collected during my studies
 # 📚 University Study Materials
 
 Welcome to my repository! This is a personal collection of materials from my university studies
