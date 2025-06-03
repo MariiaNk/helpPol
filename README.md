@@ -13,11 +13,11 @@ Some of the files are hosted on external drives:
 - 📥 **INF 2**: [Mega](https://mega.nz/folder/pzFHAD6C#BPEXmPbbCU24DUTsmCfEjQ)
 
 **Materiały od poprzednich roczników**
-- 📄 **1 semestr**: (https://mega.nz/folder/dspn2SJJ#TAD_7mS8gKUSPd85Nw8v3A)
-- 📄 **2 semestr**: (https://mega.nz/folder/FoQwBLAT#9yWHKopzlg7CioUfj60uVA)
-- 📄 **3 semestr**: (https://mega.nz/folder/F1QyFLhT#eNqW9hsSrn-Pc8O39kN-XQ)
-- 📄 **4 semestr**: (https://mega.nz/folder/coQQUBxC#2Tsc9rmypi65RKnb1It7Fw)
-- 📄 **5 semestr**: (https://mega.nz/folder/Q1pwVSbA#YO35WKinlStlM9d1xzwI9Q) 
+- 📄 **1 semestr**: [Mega](https://mega.nz/folder/dspn2SJJ#TAD_7mS8gKUSPd85Nw8v3A)
+- 📄 **2 semestr**: [Mega](https://mega.nz/folder/FoQwBLAT#9yWHKopzlg7CioUfj60uVA)
+- 📄 **3 semestr**: [Mega](https://mega.nz/folder/F1QyFLhT#eNqW9hsSrn-Pc8O39kN-XQ)
+- 📄 **4 semestr**: [Mega](https://mega.nz/folder/coQQUBxC#2Tsc9rmypi65RKnb1It7Fw)
+- 📄 **5 semestr**: [Mega](https://mega.nz/folder/Q1pwVSbA#YO35WKinlStlM9d1xzwI9Q) 
 
 - 📄 **Kolejne materiały od poprzednich roczników (semestr 1, 2, 3, 6)**: [Google Drive](https://drive.google.com/drive/mobile/folders/1_lngr1uI-ziE0gP9s1uXRgvqyZt-TXa7?usp=drive_open)
 
